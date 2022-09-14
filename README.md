@@ -2,7 +2,7 @@
 🇻🇳 : I'm from VietNam
 👀 : Iam Đỗ Đăng Khoa
 ✍️ : Github leak source ddos l4 or l7
-❤️ : Luv Như Quynhfhh 
+❤️ : Luv Như Quỳnh
 🔐 Cyber Security
 🪐 Operating Systems (Windows & Linux)
 🖥️ Website Developer
